@@ -6,3 +6,4 @@
 ## Prob-2
 
 ![Screenshot (102)](https://github.com/user-attachments/assets/0f5c2e9c-64b2-4e29-9bdd-f9f47d397d17)![Screenshot (106)](https://github.com/user-attachments/assets/dff1234b-2b3e-4553-8225-d9feafb14429)
+
